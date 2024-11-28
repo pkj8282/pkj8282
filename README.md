@@ -1,0 +1,3 @@
+- Hello! Welcome to my profile! I want get devloper of Roblox
+- I devloping Roblox, Discord Bot etc.
+-  Umm.... Ah! How do you think Python?
