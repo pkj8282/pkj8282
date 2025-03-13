@@ -1,3 +1,3 @@
-- Hello! Welcome to my profile! I want get devloper of Roblox
+- Hello! Welcome to my profile! I want be devloper of Roblox Coperation or... join MIT Computer Sience & Engineering.
 - I devloping Roblox, Discord Bot etc.
--  Umm.... Ah! How do you think Python?
+- How do you think Python?
