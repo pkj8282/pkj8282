@@ -1,3 +1,3 @@
-- Hello! Welcome to my profile! I want be devloper of Roblox Coperation and join MIT Computer Sience & Engineering.
+- Hello! Welcome to my profile! I want to be an Researcher of CSAIL and join MIT Computer Sience & Engineering (EECS Course)
 - I devloping Roblox, Discord Bot etc.
 - How do you think Python?
